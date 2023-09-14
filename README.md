@@ -4,5 +4,5 @@ Hi, I am Victor Justin Andujar. In am based out of Boston, Massachusetts. I curr
 
 Getting into the fintech industry and continuously improve my skill to keep elevating in the field.
 
-It'a aomething ive always been interesting in and love anything that has to do with finance and tehnology so it was an easy choice to explore a career change
+It'a something ive always been interesting in and love anything that has to do with finance and tehnology so it was an easy choice to explore a career change
 
