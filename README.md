@@ -4,9 +4,10 @@
 
 ### We got this
 
-image of Mountain ![mountain]([
-](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FMountain&psig=AOvVaw3TgWM5KU0CMdU4ihrXWwWw&ust=1694825252340000&source=images&cd=vfe&opi=89978449&ved=0CA0QjRxqFwoTCPD1kJuyq4EDFQAAAAAdAAAAABAD)
----
+**usa**
+
+*Letsgo*
+
 
 Hi, I am Victor Justin Andujar. In am based out of Boston, Massachusetts. I currently manage a car wash and looking to move into the fintech industry. I want to challenge myself in a field I have no experience in.
 
