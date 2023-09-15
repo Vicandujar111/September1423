@@ -8,6 +8,8 @@
 
 *Letsgo*
 
+![image]([
+](https://i.pinimg.com/originals/5a/c9/27/5ac927e42a9344f52cd298c6ac425968.png)
 
 Hi, I am Victor Justin Andujar. In am based out of Boston, Massachusetts. I currently manage a car wash and looking to move into the fintech industry. I want to challenge myself in a field I have no experience in.
 
