@@ -24,3 +24,4 @@ Getting into the fintech industry and continuously improve my skill to keep elev
 
 It'a something ive always been interesting in and love anything that has to do with finance and tehnology so it was an easy choice to explore a career change
 
+add some more text here
